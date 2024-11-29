@@ -1,16 +1,19 @@
  📚 Biblioteca do Conhecimento - Entre a Orden e o Caos
 
 Bem-vindo ao repositório oficial do canal
- Aqui, exploramos os temas mais me f da filosofia, psicologia, estratégia, lógica e autodomínio, com base nos maiores pensadores de todos os tempos.
- https://www.youtube.com/@AOrdemeoCaos
+
+ Aqui, exploramos os temas mais me fodas da filosofia, 
+ psicologia, estratégia, lógica, autodomínio
+ com base nos maiores pensadores de todos os tempos.
+ 
+ YT: https://www.youtube.com/@AOrdemeoCaos
  Contato: aordemeocaos@proton.me
+ RD: https://www.reddit.com/user/ORDEN_X_CAOS-1/
  ________________________________________
  / **Entre A Ordem E O Caos
   !Em Construção**         /
  -----------------------------------------
-   \
-     \
-                                   .::!!!!!!!:.
+                                     .::!!!!!!!:.
   .!!!!!:.                        .:!!!!!!!!!!!!
   ~~~~!!!!!!.                 .:!!!!!!!!!UWWW$$$
       :$$NWX!!:           .:!!!!!!XUWW$$$$$$$$$P
