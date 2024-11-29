@@ -2,9 +2,9 @@
 
 Bem-vindo ao repositório oficial do canal
 
- Aqui, exploramos os temas mais me fodas da filosofia, 
- psicologia, estratégia, lógica, autodomínio
- com base nos maiores pensadores de todos os tempos.
+ Aqui, exploramos os temas mais fodas da filosofia, 
+ psicologia, estratégia, lógica, autodomínio, persuasão
+ manimulação com base nos maiores pensadores de todos os tempos.
  
  YT: https://www.youtube.com/@AOrdemeoCaos
  Contato: aordemeocaos@proton.me
