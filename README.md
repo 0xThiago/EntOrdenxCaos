@@ -1,6 +1,6 @@
  📚 Biblioteca do Conhecimento - Entre a Orden e o Caos
 
-**Bem-vindo ao repositório oficial do canal**
+Bem-vindo ao repositório oficial do canal
  Aqui, exploramos os temas mais me f da filosofia, psicologia, estratégia, lógica e autodomínio, com base nos maiores pensadores de todos os tempos.
  https://www.youtube.com/@AOrdemeoCaos
  Contato: aordemeocaos@proton.me
